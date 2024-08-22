@@ -1,7 +1,9 @@
->제 [포트폴리오](https://seolseolyeseol.notion.site/Cho-Yeseol-1240efd2fb3c466f9ea3c08d2d610711?pvs=4)에 놀러오세요! 
+**Backend & Design**
+ㅤ
 
-- velog: [@yeseol](https://velog.io/@choyeseol/posts)
-- Instagram: [@lili_noo_a](https://www.instagram.com/lili_noo_a/)
-- Reach me: choyeseol07@gmail.com
+
+> [About me](https://linktr.ee/yxseol)
+
+부끄러움이 많지만 다가가는걸 망설이지 않는 사람, 귀 기울여 듣고, 협업과 소통이 원활히 이루어지기 위해 노력합니다
 
 
