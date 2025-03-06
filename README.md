@@ -1,7 +1,4 @@
 ### Backend Developer
-ㅤ
-
-
 > [About me](https://linktr.ee/yxseol)
 
 부끄러움이 많지만 다가가는걸 망설이지 않습니다.  
